@@ -1,1 +1,1 @@
-dzisiaj jest niedziela
+dzisiaj jest niedziela i jest brzydka pogoda
